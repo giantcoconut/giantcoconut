@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @giantcoconut
-- 👀 I’m interested in Web Techhhh
+- 👋 Hi, I’m pixie aka @giantcoconut
+- 👀 I’m interested in Web 3, AI and Techhhh
 
 
